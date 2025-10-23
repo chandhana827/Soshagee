@@ -1,1 +1,1 @@
-
+Soshagee:College confessions App
